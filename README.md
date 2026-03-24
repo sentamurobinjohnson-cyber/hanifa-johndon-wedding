@@ -1,2 +1,2 @@
-# hanifa-johndon-wedding
+# hanifa-johnson-wedding
 wedding website for hanifa and johnson
